@@ -5,5 +5,5 @@ He is Robby. No comment. uhm... Ruby is his older sister, so that means he is he
 ##
 # Human AU + Nationality
 *no art here, sry.*
-Canon Ruby in Human AU. She has brown skin, She is a Cameroonian, French and a little bit American *5% of American national* national.
+Canon Ruby in Human AU. She has brown skin, She is a Cameroonian, French national and a little bit American *5% of American national*.
 Canon Robby in Human AU. He has fair Beige skin. It might be a little confusing because his sister has brown skin, but he has fair Beige skin. He is a French and American national.
