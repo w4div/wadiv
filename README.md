@@ -3,3 +3,7 @@ She is Ruby. She was created on November 11, 2025, and one day in January 2026 I
 ![Robby](https://cdn.phototourl.com/member/2026-11-10-b6aac7c0-a5f0-4a54-8a70-c4f9f93089aa.png)
 He is Robby. No comment. uhm... Ruby is his older sister, so that means he is her younger brother. He's a bully, just like Shrimpo and Waxwell, but he dislikes Waxwell; in other words, Waxwell is HIS enemy. That's it. As yumeshipper. CandleCryatal. don't mind me, he's crystal. And he has a cat-like mouth shape!
 ##
+# Human AU + Nationality
+*no art here, sry.*
+Canon Ruby in Human AU. She has brown skin, She is a Cameroonian, French and a little bit American *5% of American national* national.
+Canon Robby in Human AU. He has fair Beige skin. It might be a little confusing because his sister has brown skin, but he has fair Beige skin. He is a French and American national.
